@@ -2,11 +2,11 @@
 
 Me chamo Bianca Souza
 
-Leitura é vida
+---Leitura é vida---
 
-Escritora/Poeta
+---Escritora/Poeta---
 
-Fã de música internacional
+---Fã de música internacional---
 
 Se quiser entrar em contato💌
 

@@ -3,7 +3,10 @@
 Me chamo Bianca Souza
 
 -Leitura é vida
+
 -Escritora/Poeta
+
+-Fã de música internacional
 
 Se quiser entrar em contato💌
 
